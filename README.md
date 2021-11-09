@@ -1,4 +1,4 @@
-### 👋 Hi! I'm Ha
+### 👋 Hi! I'm Ha :)
 
 ### 😄  My pronouns are she/her/hers.
 ### 🎓  I'm currently studying Mathematics at Dickinson College.
